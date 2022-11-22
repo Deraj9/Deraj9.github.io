@@ -1,9 +1,15 @@
 # Welcome to *Deraj9.github.io*
 
-My Favorite stuff
-
-- Football
+My Interests:
 
 - History
 
-- Youtube
+- Football
+
+- Listening to music
+
+- Watching Youtube
+
+- Playing video games
+
+- Astronomy
